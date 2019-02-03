@@ -69,10 +69,6 @@
 1.要学会善待自己，不要盲目去苛求自己。
 
 2.I celebrate every break through I make in the way to being free.
-
-3.
-
-4.
 ***
 ## 一 愿我们都回到孩童模样
 
